@@ -1,12 +1,4 @@
 ICOM-IC-271 IC-471 Modyfication for EUROPEN VERSION
-         SETTINGS STEP FM FREQUENCY FOR 
-
-
-
-
-
-
-
 
 Vy73 Daniel SP6QKX 04.09.2019 Poland .
 
